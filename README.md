@@ -15,5 +15,5 @@ Learn how to analyze data
 Grow my portfolio
 
 # A LITTLE REMINDER 😊
-Proverbs 3:5 
+Proverbs 3:5, 
 "As you start to walk on the way, the way appears" - Rumi
